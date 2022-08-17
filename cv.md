@@ -31,7 +31,7 @@ I am highly-motivated and have a passion for study, reliable whith deadlines and
   
 ## Work experience
 
-I have not any work experience in commercial development.
+At the moment I do not have work experience in this field yet
 
 ## Education
 
